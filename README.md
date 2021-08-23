@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @enderkinggod
 - 👀 I’m interested in making games
 - 🌱 I’m currently learning on how to code
-- 💞️ I’m looking to collaborate on kourtney
+- 💞️ I’m looking to collaborate on my crush kourtney
 - 📫 How to reach me the brooks in agusta all the way to the left you sould see a black and blue car if no black then blue car if no blue car then black
 
 <!---
